@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Bread0yummy
+- 👀 I’m interested in Js
+- 🌱 I’m currently learning Js
+- 💞️ I’m looking to collaborate on Nothin Rn
+- 📫 How to reach me With my discord breadman0173/1208_46318 Both work but on breadman0173 more
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: Uhhhhhhhh
